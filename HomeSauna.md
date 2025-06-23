@@ -4,4 +4,4 @@
 
 Референс сауны, которая понравилась, но эта скорее на 1 человека, хотелось бы немного побольше:
 
-![IMAGE 2025-06-23 19:21:20](https://github.com/user-attachments/assets/e537f569-beee-45db-8182-5236e733d6a2)
+![IMAGE 2025-06-23 19:21:20](https://github.com/user-attachments/assets/8111b6e7-a229-4f5f-bd9d-2332e7038ac7)
